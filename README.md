@@ -1,1 +1,1 @@
-This Is Version 2.0 Of My Skin It Is NSFW has lewd imaaging So Use At Ur Own Risk 18+
+This Skin Is Finished to My Satisfaction I will Start another project as i get Ideas Skin IS NSFW 18+
